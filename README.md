@@ -1,7 +1,8 @@
-Tải file về  👉 Mở lên hoặc copy 🤔🐧👉👈
+Tải file về  👉 Mở lên, ở giao diện chọn ứng dụng để mở thì chọn pascal 🤔🐧👉👈
 Link tải file:
 
 
 
 
-https://www.mediafire.com/file/fvornsmnfm8cuz5/vidu.pas/file
+
+https://www.mediafire.com/file/ictn84zf3yrem93/vidu.pas/file
